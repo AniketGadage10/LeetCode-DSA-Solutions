@@ -76,11 +76,4 @@ If you find this helpful, consider giving it a ⭐ on GitHub!
 
 ---
 
-## 📬 Connect With Me
-
-* LinkedIn: (Add your link)
-* GitHub: (Your profile link)
-
----
-
 > “Consistency beats intensity. Solve daily, grow daily.” 🚀
